@@ -26,7 +26,7 @@ I have 16 years of full-time experience at Stanbic IBTC, where I've held a varie
 - Ensured that branch budgets were exceeded, key result areas included revenue generation, profitability, new client acquisition, customer relationship management, customer experience, client retention, and compliance.
 
 **Regional Relationship Manager - Work Place Banking** _(Jan 2015 - Dec 2015)_
-- Pioneer regional Leader of the workplace banking business of the bank, with direct oversight over a team of 33 personal banking relationship managers.
+- Pioneer regional manager of the workplace banking business of the bank, with direct oversight over a team of 33 personal banking relationship managers.
 
 **Customer Consultant** _(Oct 2006 - Dec 2010)_
 - Served as the primary point of contact for customers, assisting with their financial needs and providing personalized services to ensure satisfaction and retention.
