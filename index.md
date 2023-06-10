@@ -2,7 +2,7 @@
 layout: default
 ---
 
-## Overview
+
 I am an experienced Business Strategist and Analyst with a demonstrated history of working in the financial services industry. With expertise in retail banking, client acquisition, management and retention, people management, and business development, I am dedicated to consistently delivering strong results in a variety of roles. Currently pursuing an MBA at the prestigious Durham University Business School, I am eager to apply my expertise and skills towards new professional challenges.
 
 ## Experience
